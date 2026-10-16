@@ -1,0 +1,2 @@
+# premium-dye-plant-001-dye-plant-foraging-color-ext
+Tired of forgetting where you found that perfect madder root or losing track of which mordant gave you that brilliant gold? The Dye Plant Foraging &amp; Color Extract Craft Workshop turns your foraging notes into a repeatable, living color library.  This workshop eliminates the guesswork and inconsistency from natural dyeing by providing a structured s
